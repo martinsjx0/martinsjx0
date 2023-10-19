@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil Jéssica Martins 😁
+## Bem-vindo(a) ao perfil de Jéssica Martins 😁
 
  <div>
    <a href="https://github.com/martinsjx0">
